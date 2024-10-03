@@ -31,10 +31,3 @@
 
 
 ### Vamos explorar as infinitas possibilidades do mundo da tecnologia!💻🚀
-
-
-
-
-
-
-
